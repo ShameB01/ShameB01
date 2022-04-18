@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ShameB01
+- If im Shame B01, i don`t wont to say more about myself, right?
